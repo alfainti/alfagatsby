@@ -42,7 +42,7 @@ Membaca daftar hobi ini, dan tetap berpikiran terbuka. Jika sesuatu tampaknya me
 8. pembuatan kode
    Coding dapat menyebabkan pekerjaan membayar tinggi peluang di banyak industri. Anda juga dapat mengembangkan aplikasi dan situs web Anda sendiri. contohnya seperti website untuk [produk review](http://trolipedia.com/) ini
 9. memulai sebuah Channel YouTube
-   Ini adalah tambahan yang besar untuk hobi lain. Setelah Anda memulai hobi yang berbeda, mulai syuting itu. Anda tidak pernah tahu kapan usaha anda akan berhasil tetapi pasti bisa dan akan mengubah segalanya. bermain game [roblox indonesia](https://www.youtube.com/channel/UCXB-sCHCJEnm4O9v856zFnw/) atau [speed painting](https://www.youtube.com/channel/UCKU29-91A9quF2E_TPTbnHA/).
+   Ini adalah tambahan yang besar untuk hobi lain. Setelah Anda memulai hobi yang berbeda, mulai syuting itu. Anda tidak pernah tahu kapan usaha anda akan berhasil tetapi pasti bisa dan akan mengubah segalanya. bermain game [roblox indonesia](https://www.youtube.com/channel/UCXB-sCHCJEnm4O9v856zFnw/) atau [speed painting](https://www.youtube.com/channel/UCKU29-91A9quF2E_TPTbnHA/). Kami bisa mempelajari apa yang mereka lakuan.
 10. menjadi Comic stand-up
     Beberapa hal merasa sebagus membuat ruangan penuh dengan orang tertawa. Anda mungkin akan dibayar dengan diskon minuman dan makanan pembuka pada awalnya, tetapi setelah Anda menemukan yang berikut, dunia adalah kebagahian Anda.
 11. katering
