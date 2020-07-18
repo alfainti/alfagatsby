@@ -15,7 +15,7 @@ tags:
 ---
 Menemukan sebuah proyek yang berfungsi sebagai sumber pendapatan adalah mimpi, kan? Tapi itu tidak selalu mudah.
 
-Kuncinya adalah untuk memulai. Sesederhana itu. Rintangan terbesar untuk enterpreneur hanyalah tindakan benar-benar mulai diawali dari hobi anda.
+Kuncinya adalah untuk memulai. Sesederhana itu. Rintangan terbesar untuk [enterpreneur](https://trolipedia.netlify.app/blog/2020-07-18-bagaimana-memulai-bisnis-rumahan-untuk-menambah-penghasilan/) hanyalah tindakan benar-benar mulai diawali dari hobi anda.
 
 ![Online Review](/img/ide-bisnis.jpg "Bisnis Online")
 
